@@ -1,0 +1,3 @@
+# Wiping Away this Repository.....
+
+# Reason : Recieved letter from legal firm/counselor of WhatsApp demanding Cease and Desist of this repository.
